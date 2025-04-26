@@ -1,2 +1,2 @@
-# Discord-Nuke-Bot---Beater
+# Discord-Nuke-Bot---Beater-NathanIs
 Beater Discord Nuke Bot 
