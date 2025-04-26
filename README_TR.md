@@ -1,5 +1,5 @@
 
-# [GÜNCEL DEĞİL] Presser: 7teen Sunucu Yok Edici
+# [GÜNCEL DEĞİL] Presser: NathanIs Sunucu Yok Edici
 
 | Presser |
 | ------------- |
